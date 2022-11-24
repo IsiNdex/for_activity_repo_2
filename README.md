@@ -1,0 +1,1 @@
+# for_activity_repo_2
